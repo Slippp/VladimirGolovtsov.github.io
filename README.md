@@ -1,1 +1,0 @@
-# VladimirGolovtsov.github.io
